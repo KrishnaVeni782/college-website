@@ -27,7 +27,7 @@ If you have any feedback, please reach out to us at krishnavenidayaka@gmail.com
 
 ## Authors
 
-- [@jaydipsinh13](https://github.com/https://github.com/KrishnaVeni782)
+- [krishnaveni](https://github.com/https://github.com/KrishnaVeni782)
 
 
 ## 🔗 Links
